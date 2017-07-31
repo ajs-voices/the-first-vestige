@@ -1,5 +1,25 @@
 # The First Vestige
 
+**Characters to find**
+
+* <strike>Allison Gray</strike>
+* <strike>Bryan May aka Doc</strike>
+* <strike>Terrance Anthony aka Terry</strike>
+* <strike>Lawerence Gibbs aka Larry</strike>
+* <strike>Jack Wynn</strike>
+* <strike>Morana Balrog</strike>
+* <strike>Salvador Einor aka Sal (NW)</strike>
+* <strike>Aurora Dejesus</strike>
+* <strike>Damian Vallejo</strike>
+* Desmond Vallejo (NW) - not needed at this time (NYC)
+* Dimitri Moriarty (NW) - not needed at this time (somewhere Rocky Mountains)
+* <strike>Evangeline Solomon</strike>
+* <strike>Nathaniel Von Bargen aka Nate</strike>
+* <strike>Valentine Santana</strike>
+* <strike>Alec Moretti</strike>
+* <strike>Virgil Salizar</strike>
+
+
 **Places to research**
 
 * London (Evangeline) Necromancy
@@ -39,7 +59,7 @@ Nox has an encounter with some Old World Venatori that are trying to kill ALL va
 
 He encounters them again and is engulfed in flames (and dies and rises from the ashes)
 
-Meets an 400 year old 8 year old (slightly insane, very childish girl who wants nothing more than to be loved but her hunger and thirst are uncontrollable) - she's been locked away by valence for hundreds of years to be used as a catalyst to destory humanity as we know it.
+Meets an 400 year old 8 year old (slightly insane, very childish girl who wants nothing more than to be loved but her hunger and thirst are uncontrollable) - she's been locked away by valence for hundreds of years to be used as a catalyst to destory humanity as we know it. (Morana Balog)
 
 Relationship woes:  There is much fighting when Nox leaves to go hunting everyone thought it was all over.
 
@@ -54,3 +74,9 @@ Happing endings with his little family - bringing home a new child and a new hom
 Comes home a 'new man' - because of the intensity of the fire and his 'death' Nox's scars have been erased (as with his tattoos)
 
 While Nox is gone Sage and Dorian unlock the files that Dorian's mother gave him.
+
+**possible interactions**
+
+Meet Todd (Dorian's best friend and ex-lover)
+
+Meet Asher
