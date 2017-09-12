@@ -40,7 +40,7 @@ Dee grinned and looked at me, "Hey Nox."
 
 She side stepped towards me while everyone else was busy in line getting their plates in the kitchen we were relatively alone in the dinning area.  "Oh come on."  She ran a finger down my jawline.  "You wouldn't throw him out for me."  Her finger ran down my neck and over my collarbone and farther, she was using her ability to invoke even more lust in me.
 
-Dev grabbed her hand before it hit my waist line.  "Play fair, Dee.  We are already weak when it comes to you."  He leaned in and whispered to her, "He's the alpha lion he's family we aren't throwing him out."
+Dev grabbed her hand before it hit my waist line.  "Play fair, Dee.  We are already weak when it comes to you."  He leaned in and whispered to her, "He's the alpha lion, he's family, we aren't throwing him out."
 
 Dee pouted, "I was only playing."
 
@@ -52,11 +52,11 @@ Dev grinned, "I know babe.  Just careful."
 
 Darwynn put his arms around Dev and Dee.  "Even if your boy threw me out, he and I still would be friends.  He's pussy wiped more than any guy I've ever seen, and two of you have dicks."
 
-"Hey."  Dev said.  "I don't know who that's more offensive too."
+"Hey."  Dev said.  "I don't know who should be more offended."
 
 Dee grinned and hooked her arm in Darwynns, "Come my little kitty, let's eat."
 
-Dev and I waited until more people were in the livingroom than in the kitchen before we went in thre ourselves.
+Dev and I waited until more people were in the livingroom than in the kitchen before we went in there ourselves.
 
 Beverly was the last one in the kitchen, the living room was full of chatter and eating.  There wasn't enough table space so it was make yourself comfortable and eat anywhere.  The only requirements were the kids ate at the table which meant that Dev's band mates were right there with them.  They were like big kids so why not.
 
@@ -76,11 +76,11 @@ Beverly nodded towards my plate, "Are you vegetarian?"
 
 "No." I grinned.
 
-Dev laughed.  "No his body is a temple, mom.  The three of us worship at it all the time."
+Dev laughed.  "No his body is a temple, Mom.  The three of us worship at it all the time."
 
 I rolled my eyes, "You said not in front of your mother."
 
-She laughed.  "I'm used to him and Dee, darling.  You can't embarass me."
+She laughed.  "I'm used to him and Dee, darling.  You can't embarass me.  Besides he's just like his father, always saying the most inappropriate thing."
 
 "Mom!" Dev yelled, "Don't say that."
 

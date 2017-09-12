@@ -12,21 +12,21 @@ I sighed and set down a coffee, cream with two sugars and made my own.  "I don't
 
 I sat down.  "I'm listening."
 
-"Let me in Nox."
+"Let me in, Nox."
 
-I closed my eyes and  let my shields down.  "You'll hate me afterwards." I muttered.
+I closed my eyes and let my shields down.  "You'll hate me afterwards." I muttered.  I don't know what he felt, we sat there for several long minutes while Dev delved into my thoughts.  He couldn't feel what I was feeling but I wasn't hiding from him right then.
 
 Dev touched my cheek. "Oh my sweet pretty boy."
 
-I got up and walked away from him.  He could feel everything now.  I wasn't hiding from him.  Dev knew everything about me in this moment.  I sighed.  "Now you know."
+I got up and walked away from him.  He could feel everything now.  Dev knew everything about me in this moment.  I sighed.  "Now you know."
 
 "I don't know how you do this.  Why won't you talk to us?"  Dev sighed.
 
-"What do you want me to say?"
+"What do you want me to say?"  Did he want to hear the words out loud?
 
-Dev sighed.  "I don't know Nox. How can I help?"
+Dev sighed.  "I don't know, Nox. How can I help?"
 
-I shrugged.  "Just be you, lover.  I need you.  I need Sage.  I need Dee too."
+I shrugged.  "Just be you, lover.  I need you.  I need Sage.  I need Dee, too."
 
 Dev smirked at me, "Speaking of Dee, she wants to take you out on a date tonight.  Says you aren't busy and she's free."
 

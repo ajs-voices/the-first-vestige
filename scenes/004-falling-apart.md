@@ -18,7 +18,7 @@ I didn't turn around.  I didn't want to see the look on her face, those beautifu
 
 "Because I don't let you feel me.  I don't want to make it worse than it already is."  She was standing in front of me now.  and I turned back around.  I didn't want to look at her.
 
-"Dev says you lock him out too.  Says he understands but it hurts him that you are locked up so tight.  Somethings wrong Nox.  You won't talk to Margo.  You won't talk to any of us.  But you need to."
+"Dev says you lock him out too.  Says he understands but it hurts him that you are locked up so tight.  Somethings wrong, Nox.  You won't talk to Margo.  You won't talk to any of us.  But you need to."
 
 "What do you want me to talk about Dee?"  I turned around and glared at her.  "You want to know that I'm bored out of my mind.  Do you want to know that I feel useless?  That my world is collapsing under me.  Do you want to know that I see the three of you together and I want to run away go hide in a hole and die because I'm not with you.  Do you know how many times I've come home to the three of you and just turned around and left?"
 

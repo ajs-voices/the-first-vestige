@@ -2,13 +2,9 @@
 
 Sage pulled me off the couch.  "Go get ready."
 
-I sighed.  It wasn't that I didn't want to go.  I was in a funk, which was why Sage was pushing me to go.  Why he had set everything up - rather told Dee that she had to take me out tonight.  She was the only one free.  Dev was working too many nights.  Sage had to be up early.  Dee wasn't on call tonight or tomorrow so it was perfect.  She hadn't even worked a double.  Everyone was always busy which was contributing to my lack of motivation.
+I sighed.  It wasn't that I didn't want to go.  Ever since Dev left I felt worse.  To kill time I went to NYU's website and looked at all the courses they were offering.  But the semester had already started so I could apply but it wouldn't help my boredom now.  I didn't even have any fucking clue what I wanted to do.
 
-I got up at 6am with Sage.  I made him and the boys breakfast.  They older boys got ready and walked to public school by themselves.  I got Drake ready and took him to Pre-K.  What the fuck was that?  But Drake loved it even if he had to wear his glamour all the time.  He came home exhausted.  After Drake got to school I went to the gym.  Sage purchased me a membership someplace I'd have to walk and get out of the house instead of yoga or running.  I was bored out of my skull.  I had cooked until I was bored.  I'd even sat down in front of the idiot box and tried to numb out.
-
-I went to NYU's website and looked at all the courses they were offering.  But the semester had already started so I could apply but it wouldn't help my boredom now.  I didn't even have any fucking clue what I wanted to do.  Dev tried to talk me into bartending at Aspect.  Sage pushed me to teach a class at the gym.  And I had I said I'd try both, but they didn't have places for me so again I waited.
-
-So now they were trying to at least make my life enjoyable.  This fucking sucked.  But I put on a happy face.  They knew I wasn't happy but I tried not to act like it in front of them or the boys.
+Both Sage and Dev were trying to help me find a path to go.  Dev tried to talk me into bartending at Aspect.  Sage pushed me to teach a class at the gym.  And I had I said I'd try both, but they didn't have places for me so again I waited.
 
 Sage sighed.  "Come on Nox."
 
