@@ -114,7 +114,8 @@ Meet Asher
 
 ## Outline
 
-* It's been a while since Nox left the Venatori.  He's struggling with not having anything to do. (Daily life consinsts of getting up, working out & shower, breakfast, getting the kids to school, a whole lot of nothing until it's time to get the kids and do dinner, homework and the nighttime thing.) (Jan 6, 2016)
+* (starts wednesday before thanksgiving 2015)
+* It's been a while since Nox left the Venatori.  He's struggling with not having anything to do. (Daily life consinsts of getting up, working out & shower, breakfast, getting the kids to school, a whole lot of nothing until it's time to get the kids and do dinner, homework and the nighttime thing.)
 * Cari comes to Nox on a run asking for his help
 * Nox and his lovers have a fight over his helping
 * Sage agrees but decides to go with him.  He gets a call that requires his pressence in NYC and he can't go with Nox.
