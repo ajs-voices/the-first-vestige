@@ -34,10 +34,10 @@ I grinned at him as I took his hands and wrapped my arms around him when I was s
 
 "Oh?  Should I be jealous?"
 
-I shook my head.  "No." I said, "I only have eyes for you."  I pressed my lips to his and he backed me up against the wall.  The world would pass us by behind the veil and no one saw when Dev pushed his hands down my pants and grabbed my hardening cock.
+I shook my head.  "No." I said, "I only have eyes for you."  I pressed my lips to his and he backed me up against the wall.  The world would pass us by behind the veil and no one saw when Dev pushed his hand down my pants and grabbed my hardening cock.
 
 Dev bit my neck and I groaned.  "You are going to be mad at me if you keep doing that."  I said.
 
 Dev sighed.  "We'll talk about what the vampires wanted in the morning.  I got something I want to show Sage."
 
-I raised my eyebrow in curiousity.  I wanted to know what Dev had in mind.  But he thought at me _Wait and see, pretty boy, wait and see._ as he pressed his lips to mine before we parted and started for home.
+I raised my eyebrow in curiousity.  I wanted to know what Dev had in mind.  But he thought at me _Wait and see, pretty boy, wait and see._ as he pressed his lips to mine before we parted and Dev started for home.
