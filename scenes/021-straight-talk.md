@@ -26,4 +26,4 @@ Dev sighed.  "Nox.  You aren't like us.  This is our life our world and you don'
 
 I nodded against his head. I wanted to say she'd best be afraid of you. But Dev chuckled I didn't need to.  "I love sharing with you Nox.  Of all the people to read so easy I am glad it's you.  Always entertaining."
 
-I pulled away and ducked my head.  Dev wrapped his arm around me gain and he finished me walking home.
+I pulled away and ducked my head.  Dev wrapped his arm around me again and he finished walking me home.
