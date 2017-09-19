@@ -35,6 +35,10 @@
 * Paris (Valentina) Auspex -> to NW
 * Prauge (Virgil) Dream Walking -> needs successor
 
+[Time Differences](https://www.timeanddate.com/worldclock/converter.html?iso=20170919T220000&p1=179&p2=215&p3=136&p4=16&p5=141&p6=37&p7=195&p8=204)
+London has 5hr difference 6pm in NYC is 11pm in London .
+Other countries on the list have a 6 hr difference.  5pm in NYC is 12am there.
+
 **Shorts to write**
 
 * <strike>Blood Lust</strike>
