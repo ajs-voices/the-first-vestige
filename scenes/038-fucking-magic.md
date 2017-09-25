@@ -18,7 +18,7 @@ Dev laughed. "Oh pretty boy."  He pulled me close to kiss and I lost all interes
 
 I sighed and Dev shook his head.  "They'll be fine Nox.  Just find what's missing."
 
-"I know what's missing.  Danger, excitement, my life.  Knowing I was making a difference."  I said knowing that none of that would make Dev happy.  I knew what made me happy.  Drake had said it, 'saving people is what you do.'  And for too long I was trying to hide in the real world.  I couldn't be that person anymore than Sage could stop hacking things.  I knew he wasn't straight up legal like his father said he was.  There was no way possible, the Wicked Truth was straight as an arrow.  And Adam...
+"I know what's missing.  Danger, excitement, my life.  Knowing I was making a difference."  I said knowing that none of that would make Dev happy.  I knew what made me happy.  Drake had said it, 'saving people is what you do.'  And for too long I was trying to hide in the real world.  I couldn't be that person anymore than Sage could stop hacking things.  I knew he wasn't straight up legal like his father said he was.  There was no way possible the Wicked Truth was straight as an arrow.  And Adam...
 
 Dev sighed.  "You think too much."
 
