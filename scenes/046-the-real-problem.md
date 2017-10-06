@@ -32,7 +32,7 @@ Aurora laughed and I turned to look at the brunette casually sipping at her drin
 
 The man smiled. “If that were the case you wouldn’t have bent so easily. There is a kink there I think.”
 
-I sighed. “There is, but I still don’t like to be controlled.y of you have tried lately.”
+I sighed. “There is, but I still don’t like to be controlled.”
 
 He laughed and stood up with a flourishing bow. He reminded me of and I didn’t like it. “Alec Moretti.” He offered me his hand as he bent to one knee in a bow. “At your service.”
 
