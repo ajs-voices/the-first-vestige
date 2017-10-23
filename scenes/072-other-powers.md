@@ -1,3 +1,5 @@
+# Other Powers
+
 Ant followed a few steps behind me until we were in the streets of the city. The night sky was shining on us. The moon just a sliver in the sky. There were no stars in the sky. I missed the stars. It was really the only thing I had missed about my childhood. The mountains were no longer my home, but until I had graduated I’d never really thought about it. Now I knew better. New York was my home. And my family was here. And I needed to get back to them. To fix the things I was breaking by being stubborn and childish.
 
 Ant cleared his throat. “You are going to walk into traffic if you aren’t careful.” He said as he grabbed my hoodie and I stopped as car zoomed passed me with their horn blaring.
